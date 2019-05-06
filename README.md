@@ -1,2 +1,0 @@
-# nyicil-tugas-besarr
- nyicil
